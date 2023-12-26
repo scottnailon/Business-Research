@@ -1,4 +1,4 @@
-Local Business Tax Recommendations For Australian Companies
+<h1>Local Business Tax Recommendations For Australian Companies</h1>h1
 
 Tax is an important element of running a small business in Australia. Navigating the complex landscape of business tax requires expert recommendations and mindful preparation. Below is a list of essential locations that require to be considered to help businesses optimise their tax techniques.
 
